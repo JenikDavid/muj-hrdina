@@ -1,2 +1,0 @@
-# muj-hrdina
-MujHrdina
